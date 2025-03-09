@@ -89,10 +89,5 @@ contact@oieieio.ca
 
 **Together, let’s redefine what's possible with visual AI automation. Welcome to the future! 🚀**
 
-   ```
-
-https://github.com/user-attachments/assets/9cd50569-c4bd-4b11-b9e4-6cf6e610f375
-
-
 ## Demo
 
